@@ -19,3 +19,4 @@ Fremdsprachen die ich spreche:
 * Latein - Grundkenntnisse
 
 > Audentes fortuna iuvat - Glück begleitet die Mutigen.
+![uwp2127544](https://user-images.githubusercontent.com/103640857/164451883-e95d4fc2-a52c-4117-bf55-2384df8cea8a.jpeg)
